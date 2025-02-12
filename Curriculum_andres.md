@@ -2,7 +2,7 @@
 
 :bomb: :gun: :mag_right:
 
-![Donald Trump](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Donald_Trump_Official_Portrait.jpg/800px-Donald_Trump_Official_Portrait.jpg)
+![Donald Trump](https://s.france24.com/media/display/b1bb448c-d51e-11ef-bb54-005056a90284/w:1280/p:16x9/Trumpretratooficial.jpg)
 
 ## Dades personals
 
